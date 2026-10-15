@@ -2,7 +2,7 @@
 - 👀 I’m interested in doing programming, research, web designing alsoooo.
 - 🌱 I’m currently learning WEB DEVELOPMENT.
 - 💞️ I’m looking to collaborate on several interesting projects.
-- 📫 For contact, you can contact me on LinkedIn:  https:/www.linkedin.com/in/manpreeetkaur004
+- 📫 For contact, you can contact me on LinkedIn:  https:/www.linkedin.com/in/manpreetkaur004
 - 😄 Pronouns: SHE/HER.
 - ⚡ Enjoying life as being an engineer.
 
